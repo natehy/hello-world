@@ -1,2 +1,2 @@
 # hello-world
-My first project. Yas. 
+I enjoy running and coffee and ice cream. All interdependent hobbies. 
